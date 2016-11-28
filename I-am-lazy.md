@@ -39,6 +39,10 @@ What would make me feel good? As difficult as it is to say this - just getting s
 #### Persistence
 
 #### Growth mindset
-Get on the front foot
+
+#### Practise working at difficult tasks
+This is a lazy suggestion in itself.
+
+
 
 
